@@ -18,13 +18,9 @@
 <p align="center"> rus (native) / eng . read strawpage for more info
   
 <p align="center">
-  <img src="https://sun9-33.userapi.com/impg/WE4pObCPnfPcoetT4UdWMY2-FJ9wM8ievlYvyA/O6nsboghFRU.jpg?size=494x128&quality=95&sign=ddf44b109db554048c97763f19e1de99&type=album" alt="Sublime's custom image"/>
+  <img src="https://sun9-33.userapi.com/impg/WE4pObCPnfPcoetT4UdWMY2-FJ9wM8ievlYvyA/O6nsboghFRU.jpg?size=494x128&quality=95&sign=ddf44b109db554048c97763f19e1de99&type=album" alt="Sublime's custom image"/><img src="https://64.media.tumblr.com/5a502016c0eee87e460bd685992318bd/0a049cf6e68c3c6c-5e/s250x400/c4e61cc8109807fe63c5a9ffde4bb3aacd92a954.pnj" alt="Sublime's custom image"/>
 </p>
 <p align="center"> brainrot ^_^
-
-
-
-
 
 
 
