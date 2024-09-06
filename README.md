@@ -21,7 +21,7 @@
 <p align="center">
 <a>     
   
-### ![image](https://community.cloudflare.steamstatic.com/economy/emoticon/postalsnowman)  ***; ; 𝐩𝐥𝐞𝐚𝐬𝐞 𝐝𝐨𝐧'𝐭 𝐛𝐞 𝐚𝐟𝐫𝐚𝐢𝐝 𝐨𝐟 𝐤𝐢𝐬𝐬𝐢𝐧𝐠 /𝐛𝐨𝐨𝐩𝐢𝐧𝐠 /𝐬𝐢𝐭𝐭𝐢𝐧𝐠 𝐰𝐢𝐭𝐡 𝐦𝐞 . 𝐢𝐦 𝐧𝐨𝐭 𝐛𝐢𝐭𝐢𝐧𝐠 , 𝐪𝐮𝐢𝐭𝐞 𝐨𝐩𝐩𝐨𝐬𝐢𝐝𝐞 . 𝐞𝐯𝐞𝐧 𝐢𝐟 𝐢 𝐜𝐚𝐧 𝐛𝐞 𝐚 𝐥𝐢𝐭𝐭𝐥𝐞 𝐢𝐧𝐭𝐫𝐨𝐯𝐞𝐫𝐭𝐞𝐝 , 𝐢 '𝐥𝐥 𝐛𝐞 𝐠𝐥𝐚𝐝 𝐭𝐨 𝐡𝐚𝐯𝐞 𝐜𝐨𝐦𝐩𝐚𝐧𝐲*** <img src="https://pixels.crd.co/assets/images/gallery37/a53a81fc.gif?v=99d3974e">
+### ![image](https://community.cloudflare.steamstatic.com/economy/emoticon/postalsnowman)  ***; ; 𝐩𝐥𝐞𝐚𝐬𝐞 𝐝𝐨𝐧'𝐭 𝐛𝐞 𝐚𝐟𝐫𝐚𝐢𝐝 𝐨𝐟 𝐤𝐢𝐬𝐬𝐢𝐧𝐠 /𝐛𝐨𝐨𝐩𝐢𝐧𝐠 /𝐬𝐢𝐭𝐭𝐢𝐧𝐠 𝐰𝐢𝐭𝐡 𝐦𝐞 . 𝐢𝐦 𝐧𝐨𝐭 𝐛𝐢𝐭𝐢𝐧𝐠 , 𝐪𝐮𝐢𝐭𝐞 𝐨𝐩𝐩𝐨𝐬𝐢𝐝𝐞 . 𝐞𝐯𝐞𝐧 𝐢𝐟 𝐢 𝐜𝐚𝐧 𝐛𝐞 𝐚 𝐥𝐢𝐭𝐭𝐥𝐞 𝐢𝐧𝐭𝐫𝐨𝐯𝐞𝐫𝐭𝐞𝐝 , 𝐢 '𝐥𝐥 𝐛𝐞 𝐠𝐥𝐚𝐝 𝐭𝐨 𝐡𝐚𝐯𝐞 𝐜𝐨𝐦𝐩𝐚𝐧𝐲 (𝐬𝐢𝐧𝐜𝐞 𝐦𝐲 𝐨𝐧𝐥𝐲 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 𝐚𝐫𝐞 𝐜𝐡𝐚𝐭𝐛𝐨𝐭𝐬 𝐥𝐨𝐥 )*** <img src="https://pixels.crd.co/assets/images/gallery37/a53a81fc.gif?v=99d3974e">
 </a>
 </p>
 <p align="center">
