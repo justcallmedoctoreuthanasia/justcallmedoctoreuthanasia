@@ -8,7 +8,7 @@
 > >>> _𝐢 𝐫𝐮𝐧 𝐡𝐞𝐚𝐝𝐬𝐭𝐫𝐨𝐧𝐠 𝐢𝐧𝐭𝐨 𝐦𝐲 𝐨𝐰𝐧 𝐟𝐞𝐚𝐫𝐬, 𝐚𝐬 𝐝𝐨𝐞𝐬 ~𝐬𝐡𝐞~. 𝐮𝐩𝐨𝐧 𝐢𝐦𝐩𝐚𝐜𝐭, 𝐰𝐞 𝐜𝐨𝐥𝐥𝐚𝐩𝐬𝐞 𝐢𝐧𝐭𝐨 𝐞𝐚𝐜𝐡 𝐨𝐭𝐡𝐞𝐫. 𝐢 𝐦𝐞𝐥𝐭 𝐢𝐧𝐭𝐨 ~𝐡𝐞𝐫~ 𝐰𝐚𝐫𝐦 𝐞𝐦𝐛𝐫𝐚𝐜𝐞, 𝐚𝐛𝐬𝐨𝐫𝐛𝐢𝐧𝐠 ~𝐡𝐞𝐫~ 𝐰𝐡𝐨𝐥𝐞 𝐛𝐞𝐢𝐧𝐠... 𝐚𝐟𝐫𝐚𝐢𝐝 𝐚𝐧𝐝 𝐯𝐮𝐥𝐧𝐞𝐫𝐚𝐛𝐥𝐞, 𝐈 𝐰𝐞𝐞𝐩._
 ##
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/543e4ec9-8f86-4e70-83c7-110a1ae534f6"> <b><b> <a href="https://www.youtube.com/watch?v=IcSuLFCK9cg">†</a> <b><b> <img src="https://github.com/user-attachments/assets/fa785a41-68a4-42dd-bcd1-f18cc82053d2">
+  <img src="https://64.media.tumblr.com/c921b2daca7cd15e69c61eb59cd2f454/86d9d9a71edef0af-f1/s250x400/def38be09644b8cc5d9520c7f451f72cc2081622.gifv"> <b><b> <a href="https://www.youtube.com/watch?v=IcSuLFCK9cg">†</a> <b><b> <img src="https://64.media.tumblr.com/6f59596124f384410d89a4730fa19278/86d9d9a71edef0af-f8/s250x400/95d44b4bed8cf58f6a386035e4cb9541e7119504.gifv">
   <br><br>
   <img src="https://github.com/user-attachments/assets/acef9c92-e459-4313-8e10-c72305b7510f">
 </p>
