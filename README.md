@@ -1,6 +1,6 @@
 <p align="center">
 
-<img src="https://psv4.userapi.com/c909218/u547144523/docs/d58/dd06d00ffa9b/5a53718aa5bc32db42aaac011ca5a39e-fotor-bg-remover-20240907123458.png?extra=lUnb3KduoDkxK2T6uiLT_EWSierRnzt_BUhEpkmCZh3NFHIKFvpG45ptXDcdXFwYR-iNFK-wgFAvLShQ2r0bpU8e9D58CLOgX2ozJBbfTFc15iiEwkJOnSr-EcH1BVUV2boQUuOXb45d-yAlQj1pe2H0RzE"><img src="https://psv4.userapi.com/c909218/u547144523/docs/d27/db4570c6e46c/5a1d575c1d6fb29763cb1c6343205b70-fotor-bg-remover-20240907122454.png?extra=pveHyBjL4nbNAyug7GxKl50xuIJGq52LJFVd02sgOVejzXQxKN_1bFMLwyK7nANC69MeU8FgefvzrrujXJeTY3QQy32Ijs5pAQh1lbyeEJUYhMCU-zP9A-SCvGpAZvtNKnIG7woS8Am4H_Ud5pVsANT14Dw">
+<img src="https://psv4.userapi.com/c909218/u547144523/docs/d27/db4570c6e46c/5a1d575c1d6fb29763cb1c6343205b70-fotor-bg-remover-20240907122454.png?extra=pveHyBjL4nbNAyug7GxKl50xuIJGq52LJFVd02sgOVejzXQxKN_1bFMLwyK7nANC69MeU8FgefvzrrujXJeTY3QQy32Ijs5pAQh1lbyeEJUYhMCU-zP9A-SCvGpAZvtNKnIG7woS8Am4H_Ud5pVsANT14Dw">
 
 </p>
 
