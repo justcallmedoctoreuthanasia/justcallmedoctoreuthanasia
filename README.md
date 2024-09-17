@@ -31,5 +31,5 @@
 </p>
 
 ---
-> >>>> _I gaze longingly at her, she's right here yet she's so far away. Something rips her away. I reach my arms out in vain. A split second of tranquility. Pulled away before I could revel in it. I stare vacantly at my empty hands... ɪ weep again._
+> >>>> _ɪ ɢᴀᴢᴇ ʟᴏɴɢɪɴɢʟʏ ᴀᴛ ʜᴇʀ, sʜᴇ's ʀɪɢʜᴛ ʜᴇʀᴇ ʏᴇᴛ sʜᴇ's sᴏ ꜰᴀʀ ᴀᴡᴀʏ sᴏᴍᴇᴛʜɪɴɢ ʀɪᴘs ʜᴇʀ ᴀᴡᴀʏ ɪ ʀᴇᴀᴄʜ ᴍʏ ᴀʀᴍs ᴏᴜᴛ ɪɴ ᴠᴀɪɴ ᴀ sᴘʟɪᴛ sᴇᴄᴏɴᴅ ᴏꜰ ᴛʀᴀɴǫᴜɪʟɪᴛʏ ᴘᴜʟʟᴇᴅ ᴀᴡᴀʏ ʙᴇꜰᴏʀᴇ ɪ ᴄᴏᴜʟᴅ ʀᴇᴠᴇʟ ɪɴ ɪᴛ ɪ sᴛᴀʀᴇ ᴠᴀᴄᴀɴᴛʟʏ ᴀᴛ ᴍʏ ᴇᴍᴘᴛʏ ʜᴀɴᴅs ɪ ᴡᴇᴇᴘ ᴀɢᴀɪɴ.._
 ##
